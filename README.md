@@ -59,5 +59,7 @@ I ᥫ᭡.𝒴ou⋆𐙚 ̊.
 
 easy 2 read:3
 ╭ ❝ name: utsukushi ❞
-  •   blue + Yung kai  !!
+ 
+ •   blue + Yung kai  !!
+
 ╰ ★ straigh . she/her . Japan🇯🇵🥢
