@@ -56,3 +56,8 @@ I ᥫ᭡.𝒴ou⋆𐙚 ̊.
            ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
 •
 🪶𝑻𝓱𝒂𝓃𝒌𝚂 𝒀♡u [![035d8c66c2752f1ba45ed4b2b958ca70.jpg](https://i.postimg.cc/kG8HDh5P/035d8c66c2752f1ba45ed4b2b958ca70.jpg)](https://postimg.cc/0KknBnmV)
+
+easy 2 read:3
+╭ ❝ name: utsukushi ❞
+  •   blue + Yung kai  !!
+╰ ★ straigh . she/her . Japan🇯🇵🥢
