@@ -27,15 +27,22 @@
 . ᵎᵎ
       ⩇⩇:⩇⩇
      ✮ִ ࣪𖤐___ ★₊˚﹟愛してます🥢 '
-.☘︎ ݁˖ 𓍯𓂃 pronouns༄.° 𝚂hℯ•heя
-    
- 🪷name𝓖𐙚 𝐮†𝚂𝐮𝒦𝐮s𝓱ı
 
-        જ⁀➴˚religion ༘ ೀ• "†"
+.☘︎ ݁˖ 𓍯𓂃 pronouns༄
+.° 𝚂hℯ•heя
+    
+
+ 🪷name𝓖𐙚 𝐮†𝚂𝐮𝒦𝐮s𝓱ı/utsukushi<3
+
+      
+  જ⁀➴˚religion ༘ ೀ• "†"
+
 
 𝐜♡𝐮𝓙𝑻я𝒀 ᥫ᭡ ☆+🇯🇵+
        𝒂𝓙𝓔- 16~ 
 
 
 † did 𝒂 𝓱☆ℛd 𝓦oя𝒌𓍯𓂃 on 𝑻𝓱𝓽𝚂𑁤
+           ₊˚ ‿︵‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵‿︵ ˚₊
+
 🪶𝑻𝓱𝒂𝓃𝒌𝚂 𝒀♡u [![035d8c66c2752f1ba45ed4b2b958ca70.jpg](https://i.postimg.cc/kG8HDh5P/035d8c66c2752f1ba45ed4b2b958ca70.jpg)](https://postimg.cc/0KknBnmV)
